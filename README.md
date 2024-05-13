@@ -1,8 +1,12 @@
-Hi, I have some issues with my UpWork account, the Support blocked me, and I am not even sure what the reason is.
+Hello,
 
-Can you email me to dreamskydev@gmail.com?
-Or My Skype is live:.cid.4d7236f36c739959
+I'm experiencing some difficulties with my UpWork account as it seems to have been blocked by Support, and I'm unsure of the reason behind it. I can't set up a new contract on UpWork.
 
-Thanks, I really wants to work with you in the long term relationship.
+Could you please contact me via email at dreamskydev@gmail.com? Alternatively, you can reach me on Skype at live:.cid.4d7236f36c739959.
+
+Thank you. I'm keen on establishing a long-term working relationship with you.
+
+Best regards,
+Ivan
 
 ![image](https://github.com/IvanPitukh/PowerPlant_Household_Node_Backend/assets/145331635/8242be26-1988-4daa-969b-a64d0b1c6960)
