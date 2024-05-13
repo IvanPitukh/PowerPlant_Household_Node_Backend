@@ -1,4 +1,4 @@
-Hi, Sharam. I have some issues with my UpWork account, the Support blocked me, and I am not even sure what the reason is.
+Hi, I have some issues with my UpWork account, the Support blocked me, and I am not even sure what the reason is.
 
 Can you email me to dreamskydev@gmail.com?
 Or My Skype is live:.cid.4d7236f36c739959
